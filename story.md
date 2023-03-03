@@ -13,3 +13,5 @@ When you go outside, sit next to a man on a bus bench. He’s reading a book, an
 Start your day off right with his bento box leftovers. He ate all the shrimp from the noodles and the sushi on the side but saved you the edamame. That’s alright, you didn’t need those extra calories anyway. Don’t make all that running and fighting from yesterday for nothing.
 
 Take a bite. You’re not hungry, but you don’t know when the next time you’ll see food again will be. The noodles are cold, and they slide down your throat like earthworms. Don’t complain about the temperature. Your mom always told you microwaves were evil anyway.
+
+![Screenshot](dark-background-abstract-background-network-3d-background-2560x1440-8324.png)
